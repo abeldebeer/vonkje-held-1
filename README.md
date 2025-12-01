@@ -1,1 +1,1 @@
-https://abeldebeer.github.io/vonkje-held-1/
+https://abeldebeer.github.io/vonk-held/
